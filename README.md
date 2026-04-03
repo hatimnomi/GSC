@@ -1,2 +1,2 @@
 # GSC
- sick my duck
+
